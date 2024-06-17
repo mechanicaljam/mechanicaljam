@@ -14,4 +14,7 @@
   it to keep going.
 
 <p align="center">
-  TBA.
+   I'm a very nervous and awkward wreck at first but trust!! I can be quite a chatterbox once we know/talk to each other enough. I will most definitely mirror your personality, though. It's the only thing I can do to get along. But if we know each other or talk to each other long enough, I'll eventually act more like myself 
+
+<p align="center">
+  [ will be edited ]
