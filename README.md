@@ -6,7 +6,7 @@
   Helloo, my name is Maruki! Though I go by many other names such as Mar, Uki, Pygalgia, I'm fine with anything! I'm mostly afk/offtab in PonyTown in that small area under
   the phighting area. Sometimes I'm with a friend who sits beside/in front of me, we may be moving around for no reason but we're talking through whispers. If you want to 
   interact with me, please whisper first! Expect a delayed reply because I'm away from my computer most of the time. I'm alright with cuddling and hiding as well, you don't 
-  have to ask! 
+  have to ask! It feels nice to have company, it makes me happy as well.
   
 <p align="center">
   Even though I prefer English over my native language (Filipino), please expect grammar errors here and there, I'm still trying to work on it :') I'm also a very awkward 
