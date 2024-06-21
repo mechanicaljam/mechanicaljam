@@ -1,20 +1,16 @@
-![priycfpt](https://github.com/sympatheticday/sympatheticday/assets/170843488/afe548f2-c8f0-4c72-8763-b51f029e83df)
 <p align="center">
-  <img src="https://64.media.tumblr.com/d1db0b79764561143719aa2be28324d9/f726d737f3264f84-84/s400x600/43a29c80ca9277cf5938fe34bb0d9d8700ede0ca.gifv"
-</p>
+  <img src="https://i.pinimg.com/564x/5b/4a/67/5b4a6724514f77a7a74e3847915fc4d3.jpg"
+    </p>
 <p align="center">
-  Helloo, my name is Maruki! Though I go by many other names such as Mar, Uki, Pygalgia, I'm fine with anything! I'm mostly afk/offtab in PonyTown in that small area under
-  the phighting area. Sometimes I'm with a friend who sits beside/in front of me, we may be moving around for no reason but we're talking through whispers. If you want to 
-  interact with me, please whisper first! Expect a delayed reply because I'm away from my computer most of the time. I'm alright with cuddling and hiding as well, you don't 
-  have to ask! It feels nice to have company, it makes me happy as well.
-  
+  Hello hello! I'm Maruki, you can call me Mar or Uki. Anything else is fine as long as it isn't offensive. I'm mostly afk or offtab on PonyTown so I suggest you to whisper before talking to me! Sometimes I'm with a friend and we usually move around without talking, but we're just communicating through whispers. I'm also very c+h friendly, it's nice to have company sometimes.
 <p align="center">
-  Even though I prefer English over my native language (Filipino), please expect grammar errors here and there, I'm still trying to work on it :') I'm also a very awkward 
-  person ESPECIALLY when it comes to conversations or at least a small talk. I'm not fit enough to carry on a conversation, so if you strike one, it's up to you if you want
-  it to keep going.
+  Even though I prefer English over my native language, Filipino, expect some typos and grammar here and there. I reply late and type fast and don't really proofread what I typed before sending it.
 
 <p align="center">
-   I'm a very nervous and awkward wreck at first but trust!! I can be quite a chatterbox once we know/talk to each other enough. I will most definitely mirror your personality, though. It's the only thing I can do to get along. But if we know each other or talk to each other long enough, I'll eventually act more like myself 
+   I'm a very nervous and awkward wreck at first, especially very quiet! I don't socialize that much aside from one or two friends, but I'll try my best to talk <3 Just expect some awkwardness and all that. I might not be able to carry on a conversation, so if you decide to strike one, it's up to you if you wanna keep going!
 
 <p align="center">
-  [ will be edited ]
+   Some more stuff about me, I'm an artist! I love love Roblox Myths, two being Days Union (myth), Grocery Gang and Smiles Family. I love Ramshackle, Genshin Impact even though I don't play as much, and Roblox. 
+
+<p align="center">
+  have a nice day!
