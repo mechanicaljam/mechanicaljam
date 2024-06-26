@@ -10,7 +10,7 @@
    I'm a very nervous and awkward wreck at first, especially very quiet! I don't socialize that much aside from one or two friends, but I'll try my best to talk <3 Just expect some awkwardness and all that. I might not be able to carry on a conversation, so if you decide to strike one, it's up to you if you wanna keep going!
 
 <p align="center">
-   Some more stuff about me, I'm an artist! I love love Roblox Myths, two being Days Union (myth), Grocery Gang and Smiles Family. I love Ramshackle, Genshin Impact even though I don't play as much, and Roblox. 
+   Some more stuff about me, I'm an artist! I love love Roblox Myths, two being Days Union (myth), Grocery Gang and Smiles Family. I love Ramshackle, Genshin Impact even though I don't play as much, and Roblox. Also, the two rentries are basically the same, just different themes.
 
 <p align="center">
   have a nice day!
