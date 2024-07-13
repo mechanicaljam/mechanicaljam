@@ -5,7 +5,7 @@
 ---
 
 <p align="center">
-  me repeatedly nodding or replying with actions/emotes means im muted
+  me replying with actions/emotes means im muted
 
 <p align="center">
   very awkward, i dont talk as much unless certain people are with me
