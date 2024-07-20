@@ -5,7 +5,7 @@
 ---
 
 <p align="center">
-  me replying with actions/emotes means im muted
+  very awkward, i dont talk as much unless certain people are with me
 
 <p align="center">
-  very awkward, i dont talk as much unless certain people are with me
+  read my links (rentry or carrd) please
