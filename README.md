@@ -8,4 +8,4 @@
   very awkward, i dont talk as much unless certain people are with me
 
 <p align="center">
-  read my links (rentry or carrd) please
+  im more comfortable with friends, mutuals, and/or du cosplayers but im c+h friendly!
