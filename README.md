@@ -11,4 +11,4 @@
   im more comfortable with friends, mutuals, and/or du cosplayers but im c+h friendly!
 
 <p align="center">
-  school recently started, you can find me online around 5pm-6pm (gmt+8/ph time) on monday - thursday, and 3pm/4pm - 8pm on friday! sometimes online for almost the whole day if theres no school on that day
+  school recently started, you can find me online around 5pm-8pm (gmt+8/ph time) on monday - thursday, and 3pm/4pm - 8pm on friday! sometimes online for almost the whole day if theres no school on that day
