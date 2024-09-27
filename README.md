@@ -5,4 +5,7 @@
 ---
 
 <p align="center">
-  remaking this soon
+  whisp2int , c+h friendly most of the time
+
+<p align="center">
+  read my links (rentry & prnspage), thats all
