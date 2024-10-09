@@ -8,7 +8,7 @@
   hi, my name is mar but you can call me mech or anything to your liking (just keep it appropriate), please whisp2int since im mostly offtab. i use they/he prns.
 
 <p align="center"> 
-  im a very awkward person, maybe, but im nice (i swear.) if displayed, c+h is perfectly fine! i have anger issues that i fail to control sometimes and may slip out, so ill have 'iwc' in my name if im in that state. pt removed my timeout reset, so i may disconnect every 15 mins.
+  c+h appreciated!!
 
 <p align="center">
   i love du myth, int old du fans!! (dont associate pixels with real people, differentiate VIRTUAL FICTION from REALITY.) 
