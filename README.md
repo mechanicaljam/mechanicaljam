@@ -5,10 +5,7 @@
 ---
 
 <p align="center">
-  hi, my name is mar but you can call me mech or anything to your liking (just keep it appropriate), please whisp2int since im mostly offtab. i use they/he prns.
-
-<p align="center"> 
-  c+h appreciated!!
+  hi, my name is mar but you can call me mech or anything to your liking (just keep it appropriate), please whisp2int since im mostly offtab. i use they/he prns. c+h appreciated! 
 
 <p align="center">
   i love du myth, int old du fans!! (dont associate pixels with real people, differentiate VIRTUAL FICTION from REALITY.) 
