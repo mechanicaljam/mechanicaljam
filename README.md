@@ -11,7 +11,7 @@
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<b>In</b>ter<b>act</b>ing is fi<b>ne</b> , b<b>ut</b> <b>exp</b>ect me <b>reply</b>ing <b>dr</b>yly , s<b>inc</b>e I'm <b>mor</b>e of a <b>listen</b>erㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBu<b>t</b> I pro<b>mi</b>se I'm <b>a</b> kin<b>d</b> pe<b>rso</b>n ! Ju<b>st</b> <b>awk</b>ward . I <b>rare</b>ly h<b>ave</b> "<b>dni</b>u__" in <b>m</b>yㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤn<b>ame</b> , <b>bu</b>t if <b>I</b> do , <b>plea</b>se re<b>spec</b>t it !
 
 <p align="right">
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <b>I'</b>m al<b>way</b>s up <b>t</b>o hav<b>ing</b> gr<b>een</b> <b>nam</b>es ! ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<b>Fri</b>end Re<b>qu</b>est<b>ing</b> is <b>al</b>ways app<b>rec</b>iated (<b>on</b>ly if we <b>have</b> int<b>erac</b>ted)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI <b>usu</b>ally do<b>n't</b> int <b>fir</b>st un<b>less</b> I wan<b>t</b> to c<b>rown</b> <b>some</b>one's <b>sk</b>in !
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <b>I'</b>m al<b>way</b>s up <b>t</b>o hav<b>ing</b> gr<b>een</b> <b>nam</b>es ! ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<b>Fri</b>end Re<b>qu</b>est<b>ing</b> is <b>al</b>ways app<b>rec</b>iated (<b>on</b>ly if we <b>have</b> int<b>erac</b>ted)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI <b>usu</b>ally do<b>n't</b> int <b>fir</b>st un<b>less</b> I wan<b>t</b> to c<b>rown</b> <b>some</b>one's <b>sk</b>in !
 
  <p align="center">
   <img width="1000" height="120" src="https://64.media.tumblr.com/890bbc843e60aa021e359b0778a87554/ad444ea1cc96a624-91/s400x600/89e9fcbffab40563183a96c8b30d1944c363b292.pnj">
