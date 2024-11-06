@@ -8,10 +8,10 @@
   You can call me Mar, Mech, or Mj! Nicknames are okay as long as they're not innapropriateㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h friendly if displayed ! whisp2int ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤinspo is okay , do not copy and cover ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤHeㅤ/ㅤTheyㅤ,ㅤINTP 4w5
 
 <p align="center">
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤInteracting is fine , but expect me replying dryly , since I'm more of a listenerㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBut I promise I'm a kid person ! Just awkward . I rarely have "dniu__" in myㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤname , but if I do , please respect it !
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤInteracting is fine , but expect me replying dryly , since I'm more of a listenerㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBut I promise I'm a kid person ! Just awkward . I rarely have "dniu__" in myㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤname , but if I do , please respect it !
 
 <p align="right">
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm c+h friendly but I may not talk much ! ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFriend Requesting is always appreciated (only if we have interacted)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI usually dOn't int first unless I want to crown someone's skin !
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm c+h friendly but I may not talk much ! ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFriend Requesting is always appreciated (only if we have interacted)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI usually dOn't int first unless I want to crown someone's skin !
 
  <p align="center">
   <img width="1000" height="120" src="https://64.media.tumblr.com/890bbc843e60aa021e359b0778a87554/ad444ea1cc96a624-91/s400x600/89e9fcbffab40563183a96c8b30d1944c363b292.pnj">
