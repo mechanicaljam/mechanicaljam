@@ -5,7 +5,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝗺𝘦𝘤𝘩](https://rentry.co/mecharu)anical<b>j</b>am
   
-  You can call me Mar, Mech, or Mj! Nicknames are okay as long as they're not innapropriateㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h friendly if displayed ! whisp2int ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤinspo is okay , do not copy and cover ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤHeㅤ/ㅤTheyㅤ,ㅤINTP 4w5
+  You can call me Mar, Mech, or Mj! Nicknames are okay as long as they're not innapropriateㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h friendly if displayed ! whisp2int ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤinspo is okay , do not copy and cover ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤHeㅤ/ㅤTheyㅤ,ㅤINTP 4w5
 
 <p align="center">
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤInteracting is fine , but expect me replying dryly , since I'm more of a listenerㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBut I promise I'm a kid person ! Just awkward . I rarely have "dniu__" in myㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤname , but if I do , please respect it !
