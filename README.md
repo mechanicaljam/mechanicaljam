@@ -1,18 +1,9 @@
-<p align="center">
-  <img width="1000" height="120" src="https://64.media.tumblr.com/a0c72e05fb6cafeadce8ef6df30b17ca/ad444ea1cc96a624-f8/s400x600/6f8b62107e940fd8735ac97662422f1a1a1d4962.pnj">
-</p>
+got rid of the pretty sparkly readme bc i hated it honestly </3 
 
+Mech/Mj/Mar, preferably Mech but mar and anything else (as long as its appropriate) is fineㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ he/they, intp, artistㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ c+h friendly when displayed! please w2iw2iw2i im very offtab ALL the time
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝗺𝘦𝘤𝘩](https://rentry.co/mecharu)anical<b>j</b>am
-  
-  You can call me Mar, Mech, or Mj! Nicknames are okay as long as they're not innapropriateㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc+h friendly if displayed ! whisp2int ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤinspo is okay , do not copy and cover ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤHeㅤ/ㅤTheyㅤ,ㅤINTP 4w5
+im a simple guy, dont cover me unless i do, then we're fineㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  pls dont randomly sit in front of me without talking, it makes me uncomfortable for some reason but please dontㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ days union and hermitcraft/life series intintint (beware, im awkward)
 
-<p align="center">
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤInteracting is fine , but expect me replying dryly , since I'm more of a listenerㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBut I promise I'm a kid person ! Just awkward . I rarely have "dniu__" in myㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤname , but if I do , please respect it !
+speaking of awkward1! im socially awkward, i have social anxiety, guaranteed awkwardness when we socializeㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoverall i promise im a chill guy, just extremely awkward and not the best in conversations. ill usually just sit and observe unless im being spoken to. i might try to match your energy, but mostly not. best way to describe myself is a low energy and awkward listener
 
-<p align="right">
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm c+h friendly but I may not talk much ! ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFriend Requesting is always appreciated (only if we have interacted)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI usually don't int first unless I want to crown someone's skin !
-
- <p align="center">
-  <img width="1000" height="120" src="https://64.media.tumblr.com/890bbc843e60aa021e359b0778a87554/ad444ea1cc96a624-91/s400x600/89e9fcbffab40563183a96c8b30d1944c363b292.pnj">
-</p>
+<img src="https://i.pinimg.com/736x/a3/1e/13/a31e130589b7ed32169eee1a257fc521.jpg">
