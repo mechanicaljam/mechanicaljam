@@ -8,4 +8,4 @@ speaking of awkward1! im socially awkward, i have social anxiety, guaranteed awk
 
 im also sort of emotionally unavailable, i dont do well in emotional situationsㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ        ㅤ    ㅤㅤㅤㅤ   some other things is that im easily overwhelmed and i struggle to understand things quickly, i have awful memory too, so plspls be patient with me tyty
 
-<img src="https://i.pinimg.com/736x/a3/1e/13/a31e130589b7ed32169eee1a257fc521.jpg">
+<img src="https://blinkies.cafe/b/blinkiesCafe-WU.gif">
