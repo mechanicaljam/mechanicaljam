@@ -2,6 +2,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdont cover me please, unless youre a friend
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim an extremely shy and awkward person, im not usually the one to int first!!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim an extremely shy and awkward person, im not usually the one to int first!!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=cc1c6dfa ">
