@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤim usually in that small space under Phighting/Roblox area alone or with my friends or partner, feel free to interact ^^ w2i
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim usually in that small space under Phighting/Roblox area alone or with my partner, feel free to interact ^^ w2i
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdont cover me please, unless youre a friend
 
