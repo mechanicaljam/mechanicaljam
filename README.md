@@ -35,9 +35,6 @@ $\color{#802f4b}{\textsf{ㅤㅤㅤ〝 sympathetic . formerly﹕mechanicaljam  �
 
 [![Discord Presence](https://lanyard.cnrad.dev/api/799231018963435520?theme=dark&bg=965d06)](https://discord.com/users/799231018963435520)
 
-<p align = "center">
-<img src = https://files.catbox.moe/5ovwbl.png>
-
 </div>
   </td>
 </table>
